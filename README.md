@@ -7,3 +7,4 @@ Yourself. It's an interesting enough work, 8 letters; 3 vowels, 5 consonants. Or
 way, according to Wolfram Alpha it's the 418th most used word while speaking and the 1013th most common word written in the English
 language. Very interesting indeed. Also worth noting, it receives a 14 in both the North American and International versions of Scrabble.
 Is that good? I don't remember. It's been a while since I've played Scrabble.
+
